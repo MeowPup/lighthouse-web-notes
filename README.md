@@ -1,1 +1,1 @@
-# [Emily]'s Notes
+# Emily's Notes
